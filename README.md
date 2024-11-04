@@ -1,0 +1,2 @@
+# myGPTbuddy.ai
+thenewone
